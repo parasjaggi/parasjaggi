@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **parasjaggi20@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1b4uCGuhEfS6D2S34WlgR3zULDGZA-rio?usp=sharing](https://drive.google.com/drive/folders/1b4uCGuhEfS6D2S34WlgR3zULDGZA-rio?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1qhoiSFrVxpWJDKnufKo6Exd2VrCH-g_Z/view?usp=sharing](https://drive.google.com/file/d/1qhoiSFrVxpWJDKnufKo6Exd2VrCH-g_Z/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
